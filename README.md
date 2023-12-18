@@ -13,4 +13,19 @@ Here are some ideas to get you started:
 - 📫 How to reach me: ...
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
--->
+-->tab....Karlitos88 
+esc'"JuancarlosS1977 
+tab"colaborate content Red
+invest financial particular
+esc-TheNewFactory@Art&Contents.Red 
+esc/-Noguera Pallaresa N°61
+tab-cp-08014-Barcelona
+Director Business and Master github
+collaborate-Atlalassia
+jira typeform X 
+Network
+repository Karlitos88//Welcome//JUANCARLOSSNET.ETH 
+TheNewFactory@Art&Contents.Red 
+email-Jcarlossantosferreiros77@gmail.com 
+      Santosferreirosjuancarlos@gmail.com 
+      NewArtfactory@gmail.com 
